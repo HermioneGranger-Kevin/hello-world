@@ -4,4 +4,4 @@ My First Repository
 
 by HermioneGranger-Kevin
 
-I love ☕ 🍕 and 👧
+I love ☕ 、 🍕 and 👧.
